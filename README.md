@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @marianz-bonfire
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...**Flutter** nd **Dart**
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in ...terrestrial forms
+- 🌱 I’m currently learning ...**Universal Knowledge**
+- 💞️ I’m looking to collaborate on ...celestial being
 - 📫 How to reach me ...
 
 <!---
